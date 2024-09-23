@@ -1,1 +1,2 @@
-
+# Community Service
+Over the years I've done many things for the community, including going around my school and fixing things that break (it's been like this since 5th grade) and helping friends with issues they come accross. More recently, I've repaired a Quest 2 and a PC that belong to some friends of mine. I've also scavenged some resources from broken laptops in the past and repurposed them, sometimes giving them to friends.
